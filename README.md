@@ -1,1 +1,1 @@
-## Sandra Vasquez | Portfolio
+## Sandra Vasquez
